@@ -11,3 +11,5 @@ Join our telegram group caht : https://t.me/HashPlay
 <br>
 
 This site is made for all musicians and is not owned by an individual. The only domain is owned by an individual.
+
+All the musicians on this site, they can do everything with their own free will. Our motto is to do what makes you feel happy and free. - HashPlay is for me, for You and for ALL!
