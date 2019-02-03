@@ -7,3 +7,7 @@ Manipulator 775 is the creator of hashpaly.org Once a year Manipulator 775 will 
 <br>
 
 Join our telegram group caht : https://t.me/HashPlay
+
+<br>
+
+This site is made for all musicians and is not owned by an individual. The only domain is owned by an individual.
