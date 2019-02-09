@@ -1,9 +1,9 @@
 # MUSIC
 We breathe with music and play with music, Cool Kid Musician group
 <br>
-Mooi is first musicain who joined as a Musicain on board. 
+Anyone can do music. Hashpaly is a playground for really cool musicians.
 <br>
-Manipulator 775 is the creator of hashpaly.org Once a year Manipulator 775 will release one song. 
+Music labels that nobody owns. #HashPlayORG #HashPlayMusic #WeBreatheWithHashPlay
 <br>
 
 Join our telegram group caht : https://t.me/HashPlay
