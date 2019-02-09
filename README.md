@@ -6,7 +6,7 @@ Anyone can do music. Hashpaly is a playground for really cool musicians.
 Music labels that nobody owns. #HashPlayORG #HashPlayMusic #WeBreatheWithHashPlay
 <br>
 
-Join our telegram group caht : https://t.me/HashPlay
+Join our telegram group chat : https://t.me/HashPlay
 
 <br>
 
